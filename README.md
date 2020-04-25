@@ -17,7 +17,7 @@ Note: Gas mask parts spawn behind lab B next to the green irradiated water (area
 
 Step 5: Mesmerize the paper on the wall next to the pink 115 rock in the body bag room. Make your way to the entrance of the bunker room (just left of the elevator) and mesmerize that wall.  
 
-Step 6: Find all 3 gears for the machine to activate the elevator. The first gear is from the plane you can shoot down. To shoot it down, get an artillery shell from a plant by putting a seed in it and watering it with rainbow water and shooting the plant with the KT-4 every round until it gives you the shell. Then shoot down the plane with the AA gun when it comes around and collect the piece.  
+Step 6: Find all 3 gears for the machine to activate the elevator. The first gear is from the plane you can shoot down. To shoot it down, get an artillery shell from a plant by putting a seed in it and watering it with blue water and shooting the plant with the KT-4 every round until it gives you the shell. Then shoot down the plane with the AA gun when it comes around and collect the piece.  
 
 Step 7: Second gear piece is in a secret room that can only be accessed by using the "Anywhere But Here" gobble gum when you are inside the room with the giant spider. Other places may also work for this.  
 
